@@ -1,0 +1,2 @@
+# MAHINAY BLOG
+ BSIT - S7C3
